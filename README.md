@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @beep-boop-blob
-- 👀 I’m interested in ... The study about musicology and the problems it currently faces.
-- 🌱 I’m currently learning ... Open source programming language through GitHub.
-- 💞️ I’m looking to collaborate on ... Rather ... I am looking for someone to join my project and help me find possible…
+- 👋 Ij, J’n @cffq-cppq-cmpc
+- 👀 J’n joufsftufe jo ... Uif tuvez bcpvu nvtjdpmphz boe uif qspcmfnt ju dvssfoumz gbdft.
+- 🌱 K’o ewttgpvna ngctpkpi ... Qrgp uqwteg rtqitcookpi ncpiwcig vjtqwij IkvJwd.
+- 💞️ L’p orrnlqj wr frooderudwh rq ... Udwkhu ... L dp orrnlqj iru vrphrqh wr mrlq pb surmhfw dqg khos ph ilqg srvvleoh…
